@@ -1,1 +1,0 @@
-http://lascarid.es/fussyflags/
